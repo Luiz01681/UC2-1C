@@ -9,10 +9,10 @@
 - Coloque como título o seu nome completo. Ex: # SEU NOME
 - insira os links dos trabalhos e atividades que você desenvolveu e participou durante esta UC.
 
-# Tereza Oliveira
+# Luiz Miguel
 
 Atividade 1: Trello 
-- [Grupo](link)
+- [Duolingo](https://trello.com/invite/b/3dmfpsRr/ATTI735bbc1065bf5bc3bac84984e2506f4627640D8D/analise-swot)
 
 
 
