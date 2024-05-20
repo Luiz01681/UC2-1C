@@ -11,8 +11,10 @@
 
 # Luiz Miguel
 
-Atividade 1: Trello 
+## Atividade 1: Trello 
 - [Duolingo](https://trello.com/invite/b/3dmfpsRr/ATTI735bbc1065bf5bc3bac84984e2506f4627640D8D/analise-swot)
 
 
 
+## Atividade 2: Business model
+- [Djanira 91 Bar e comedoria](https://www.canva.com/design/DAGFwUTfLCs/n_rlMLTr3PNI2OBYw7fl2w/edit?utm_content=DAGFwUTfLCs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
