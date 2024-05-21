@@ -18,3 +18,7 @@
 
 ## Atividade 2: Business model
 - [Djanira 91 Bar e comedoria](https://www.canva.com/design/DAGFwUTfLCs/n_rlMLTr3PNI2OBYw7fl2w/edit?utm_content=DAGFwUTfLCs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+
+## Atividade 3: Emprego dos sonhos
+[Emprego dos sonhos](https://docs.google.com/document/d/1p9bySXe0eyJ9XBjlzDMnz-YQ52Ek_umZMB4XAzUBBBg/edit?usp=sharing)
